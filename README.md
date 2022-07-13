@@ -16,3 +16,5 @@
 Diretor de Comunicação e Marketing de maio a novembro de 2019 e Coordenador Geral de dezembro de 2019 até o presente no Centro Acadêmico de Ciência da Computação Ada Lovelace - UFLA.
 
 Pesquisador do programa PIBIC/CNPq (Programa Institucional de Bolsas de Iniciação Ciêntifica) da UFLA.
+
+![ZimaBlue](https://i.pinimg.com/564x/35/8d/a9/358da93cc39c8d618f5a4a56312cb97c.jpg)
